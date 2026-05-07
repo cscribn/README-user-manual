@@ -1,6 +1,6 @@
 # README-user-manual
 
-## Things I like
+## Things I believe in
 For both myself and others.
 
 ### Communication
