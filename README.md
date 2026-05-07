@@ -15,8 +15,8 @@ For both myself and others.
 * Putting oneself in someone else's shoes.
 * Doing what you can, where you are, with what you have.
 * Helping face issues that aren't one's fault, but became one's responsibility.
-* Staying aggressive and sometimes missing dates rather than being conservative and always hitting dates.
-* Taking risks. Cleaning up the messes.
+* Sometimes missing dates rather than being conservative.
+* Taking risks but cleaning up the messes.
 
 ## My Personality
 
