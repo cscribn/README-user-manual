@@ -5,18 +5,18 @@ For both myself and others.
 
 ### Communication
 
-* Informing early and often.
-* Closing the loop on everything that is opened.
-* Keeping a record of each item worked.
-* Proposing a solution when presenting a problem.
+* Inform early and often.
+* Close the loop on everything opened.
+* Keep a record of each item worked.
+* Propose a solution when presenting a problem.
 
 ### Taking Action
 
-* Putting oneself in someone else's shoes.
-* Doing what you can, where you are, with what you have.
-* Helping face issues that aren't one's fault, but became one's responsibility.
-* Sometimes missing dates rather than being conservative.
-* Taking risks but cleaning up the messes.
+* Put oneself in someone else's shoes.
+* Do what you can, where you are, with what you have.
+* Help face issues that aren't one's fault, but became one's responsibility.
+* Sometimes miss dates rather than being conservative.
+* Take risks but clean up the messes.
 
 ## My Personality
 
